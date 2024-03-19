@@ -4,7 +4,7 @@
  - Постоловский Михаил
  - +7 928 766 31 65
  - mihailpostolovskij@gmail.com
- - @makernoon
+ - tg: @makernoon
 
 ## 1. Вопросы для разогрева
 
